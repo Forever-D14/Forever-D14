@@ -2,6 +2,7 @@
 
 - ⛏ Working on Kimetrics as Data Engineer⛏ 
 - 👨🏾‍💻 Data Lover
+- 🇲🇽 Mexican 
 
 <h2>About me!</h2>
 
