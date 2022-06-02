@@ -11,7 +11,7 @@ In my life, if there's something I love/like, I'll do all in my hands to accompl
 
 My life's Mantra: "Don't keep with the desire of doing something". Make things happen.🔥🔥🔥
 
-My principal hobby(Not taking Data) is Table Tennis 🏓 🏓 🏓 
+My secundary hobby(Data is the main) is Table Tennis 🏓 🏓 🏓 
 
 Also, i used to play videogames. I'm on to competitive games. 🎮 🎮 🎮
 
