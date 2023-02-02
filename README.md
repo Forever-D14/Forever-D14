@@ -1,6 +1,6 @@
 <h1>👋 Hi, I’m Ignacio</h1>
 
-- ⛏ Working on Kimetrics as Data Engineer⛏ 
+- ⛏ Working on XalDigital as Data Engineer⛏ 
 - 👨🏾‍💻 Data Lover
 - 🇲🇽 Mexican 
 
