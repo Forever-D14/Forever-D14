@@ -1,6 +1,6 @@
 <h1>👋 Hi, I’m Ignacio</h1>
 
-- ⛏ Working on Semantic AI as Data Engineer⛏ 
+- ⛏ Working on NIDIRO as Data Engineer⛏ 
 - 👨🏾‍💻 Data Lover
 - 🇲🇽 Mexican 
 
